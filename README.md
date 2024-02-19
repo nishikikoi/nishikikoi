@@ -6,5 +6,5 @@
 </p>
    <p align="center">  ♡︎ ┊ briar / rose ⋮ 20↑ ⋮ they / he</b>
 </p>
-   <p align="center"> weh
+   <p align="center"> THIS IS A WIP. I'M SORRY!!
 </p>
