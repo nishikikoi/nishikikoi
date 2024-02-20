@@ -13,10 +13,10 @@
 </p>
    <p align="center"><b>⭐ BYI:</b> i'm critical of my interests, i'm very shy but i try to respond to whispers to the best of my ability, <br>i use the block and hide buttons VERY freely.
 </p>
-   <p align="center"><b>⭐ DNI:</b> general dni criteria, pro-shippers, just dni if you plan on being a dick to me for no reason.
+   <p align="center"><b>⭐ DNI:</b> general dni criteria, pro-shippers, just dni if you plan on being a dick for no reason.
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" /><img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" />
 </p>
-     <p align="center"><b>⭐ INTERESTS:</b> hypmic, castlevania (games), ffxiv, shin megami tensei, persona 2-5, enstars, identity v, <br>mother series, pokémon, charisma house, tokusatsu ( primarily kamen rider and ultraman ), f&h
+     <p align="center"><b>⭐ INTERESTS:</b> hypmic, castlevania (games), ffxiv, <i>shin megami tensei</i>, persona 2-5, enstars, identity v, <br>mother series, pokémon, <i>charisma house</i>, tokusatsu ( primarily kamen rider and ultraman ), f&h
 </p>
