@@ -4,7 +4,10 @@
    <p align="center"> <b> ✰ harmony protected by justice and law
 <br align="center"> makes the world burst into happiness with a smile!! ✰</b>
 </p>
-   <p align="center">  ♡︎ ┊ briar / rose ⋮ 20↑ ⋮ they / he</b>
+   <p align="center">  ♡︎ ┊ briar / rose ⋮ 22 ⋮ they / he</b>
+</p>
+  <p align="center">
+  <img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" /><img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" /><img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" />
 </p>
    <p align="center"> THIS IS A WIP. I'M SORRY!!
 </p>
