@@ -11,7 +11,7 @@
 </p>
 
 </p>
-   <p align="center"><b>⭐ BYI:</b> i'm critical of my interests, i'm very shy but i try to respond to whispers to the best of my ability, <br>i use the block and hide buttons VERY freely.
+   <p align="center"><b>⭐ BYI:</b> i'm critical of my interests, i'm very shy but i try to respond to the best of my ability, <br>i use the block and hide buttons VERY freely.
 </p>
    <p align="center"><b>⭐ DNI:</b> general dni criteria, pro-shippers, just dni if you plan on being a dick for no reason.
 </p>
