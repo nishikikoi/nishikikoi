@@ -15,5 +15,5 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" /><img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" />
 </p>
-     <p align="center"><b>⭐ INTERESTS:</b> hypmic, castlevania (games), ffxiv, <i>shin megami tensei</i>, persona 2-5, enstars, identity v, <br>mother series, pokémon, <i>charisma house</i>, tokusatsu ( primarily kamen rider and ultraman ), f&h
+     <p align="center"><b>⭐ INTERESTS:</b> castlevania (games), ffxiv, <i>shin megami tensei</i>, persona 2-5, enstars, identity v, <br>mother series, pokémon, hypmic, <i>charisma house</i>, tokusatsu ( primarily kamen rider and ultraman ), f&h
 </p>
