@@ -1,10 +1,10 @@
   <p align="center">
-  <img src="https://64.media.tumblr.com/71a79e65a062a1091884696b042cc113/200f4c51a66335d3-0c/s540x810/473add70e33a921b363315f24a3545119f26d196.gif" />
+   <img src="https://64.media.tumblr.com/5af44e51e4a6f412c7119107c5865f38/833869d69f9f4f48-a4/s540x810/fea6cfdc87db9ae7d1dd1fd4391fad52068775e2.gif" />
 </p>
-   <p align="center"> <b> ✰ harmony protected by justice and law makes the world burst into happiness with a smile!! ✰</b>
+   <p align="center"> <b> ᴍᴀʏ ʏᴏᴜʀ ɴᴇᴡꜰᴏᴜɴᴅ ᴘᴏᴡᴇʀ ɢᴜɪᴅᴇ ʏᴏᴜʀ sᴜʀᴠɪᴠᴀʟ. </b>
 </p>
   <p align="center">
-  <img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" /><img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" />
+  <img src="https://64.media.tumblr.com/624036b4a3ce94668a5803a8389a6514/20e413db0662aaae-22/s500x750/dd101737571059a68d628c41be73bf6384dac00f.gif" />
 </p>
 
 </p>
@@ -13,7 +13,12 @@
    <p align="center"><b>⭐ DNI:</b> general dni criteria, pro-shippers, just dni if you plan on being a dick for no reason.
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" /><img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/9cef6d1425b04a53-d8/s250x400/0e21cf3a5fc4e782346c968555c2ad7f1b2a2667.gif" />
+  <img src="https://64.media.tumblr.com/624036b4a3ce94668a5803a8389a6514/20e413db0662aaae-22/s500x750/dd101737571059a68d628c41be73bf6384dac00f.gif" />
 </p>
      <p align="center"><b>⭐ INTERESTS:</b> castlevania (games), ffxiv, <i>shin megami tensei</i>, persona 2-5, enstars, identity v, <br>mother series, pokémon, hypmic, <i>charisma house</i>, tokusatsu ( primarily kamen rider and ultraman ), f&h
+</p>
+<p align="center">
+  <img src="https://64.media.tumblr.com/624036b4a3ce94668a5803a8389a6514/20e413db0662aaae-22/s500x750/dd101737571059a68d628c41be73bf6384dac00f.gif" />
+</p>
+     <p align="center"><b>IMAGE CREDITS:</b> link for gif here, link for pfp here
 </p>
