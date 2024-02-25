@@ -4,7 +4,7 @@
    <p align="center"> <b> ᴍᴀʏ ʏᴏᴜʀ ɴᴇᴡꜰᴏᴜɴᴅ ᴘᴏᴡᴇʀ ɢᴜɪᴅᴇ ʏᴏᴜʀ sᴜʀᴠɪᴠᴀʟ. </b>
 </p>
   <p align="center">
-  <img src="https://64.media.tumblr.com/624036b4a3ce94668a5803a8389a6514/20e413db0662aaae-22/s500x750/dd101737571059a68d628c41be73bf6384dac00f.gif" />
+  <img src="https://64.media.tumblr.com/f97b54b8cab2b580aa400978fffb9227/ec44294ed271245d-0d/s400x600/fcf87aa8c1a4fd476251f9c76bfb969f06438a10.pnj" />
 </p>
 
 </p>
@@ -13,7 +13,7 @@
    <p align="center"><b>DNI:</b> general dni criteria, pro-shippers, just dni if you plan on being a dick for no reason.
 </p>
 <p align="center">
-  <img src="https://64.media.tumblr.com/624036b4a3ce94668a5803a8389a6514/20e413db0662aaae-22/s500x750/dd101737571059a68d628c41be73bf6384dac00f.gif" />
+  <img src="https://64.media.tumblr.com/f97b54b8cab2b580aa400978fffb9227/ec44294ed271245d-0d/s400x600/fcf87aa8c1a4fd476251f9c76bfb969f06438a10.pnj" />
 </p>
      <p align="center"><b>INTERESTS:</b> castlevania (games), ffxiv, <i>shin megami tensei</i>, persona 2-5, identity v, mother series, <br>pokémon, hypmic, <i>charisma house</i>, tokusatsu ( primarily kamen rider and ultraman ), f&h
 </p>
