@@ -20,5 +20,5 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/f97b54b8cab2b580aa400978fffb9227/ec44294ed271245d-0d/s400x600/fcf87aa8c1a4fd476251f9c76bfb969f06438a10.pnj" />
 </p>
-     <p align="center"><b>PONYTOWN NOTES.</b> <br>wah <br>wah <br>wah <br>wah <br>wah <br>wah <br>wah <br>wah
+     <p align="center"><b>PONYTOWN NOTES.</b> <br>· feel free to refer to me with the name/pronouns of the pony i'm using, idrc <br>· sitting together doesn't always mean shipping. let a man sit with his bros in peace <br>· feel free to use my ponies for inspo! if anything just ask first! 💙 <br>wah <br>wah <br>wah <br>wah <br>wah
 </p>
