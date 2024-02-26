@@ -8,7 +8,7 @@
 </p>
 
 </p>
-   <p align="center"><b>BYI:</b> i'm critical of my interests, i'm very shy but i try to respond to the best of my ability, <br>I don't take insults lightly; even playful ones, i use the block and hide buttons VERY freely.
+   <p align="center"><b>BYI:</b> i'm critical of my interests, i'm very shy but i try to respond to the best of my ability, <br>I don't take insults lightly; even playful ones, i use the block and hide buttons VERY freely.<br>homestuck and hh skins are on thin ice.
 </p>
    <p align="center"><b>DNI:</b> general dni criteria, pro-shippers, just dni if you plan on being a dick for no reason.
 </p>
