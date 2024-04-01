@@ -1,6 +1,6 @@
    <p align="center"><b>BYI:</b> i'm critical of my interests, i'm very shy but i try to respond to the best of my ability, <br>I don't take insults lightly; even playful ones, i use the block and hide buttons VERY freely.
 </p>
-   <p align="center"><b>DNI:</b> general dni criteria, pro-shippers, enstaries (few exceptions), just dni if you plan on being a dick for no reason.
+   <p align="center"><b>DNI:</b> general dni criteria, pro-shippers, just dni if you plan on being a dick for no reason.
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/337bdbe84c55cec49ca92a6ef2f51ea0/ec44294ed271245d-ad/s400x600/54bb77acaf3acbb1a297a0ee83d3ceee4a204e8e.pnj" />
