@@ -5,7 +5,7 @@
 <p align="center">
   <img src="https://64.media.tumblr.com/337bdbe84c55cec49ca92a6ef2f51ea0/ec44294ed271245d-ad/s400x600/54bb77acaf3acbb1a297a0ee83d3ceee4a204e8e.pnj" />
 </p>
-     <p align="center"><b>INTERESTS:</b> castlevania (games), <i>ffxiv</i>, shin megami tensei, persona 2-5, identity v, mother series, <br>pokémon, <i>aitsf</i>, hypmic,  charisma house, tokusatsu ( primarily kamen rider and ultraman ) <br>+ others not on this list
+     <p align="center"><b>INTERESTS:</b> castlevania (games), <i>ffxiv</i>, shin megami tensei, persona 2-5, identity v, mother series, <br>pokémon, aitsf, hsr, zzz, hypmic,  charisma house, tokusatsu ( primarily kamen rider and ultraman ) <br>+ others not on this list
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/337bdbe84c55cec49ca92a6ef2f51ea0/ec44294ed271245d-ad/s400x600/54bb77acaf3acbb1a297a0ee83d3ceee4a204e8e.pnj" />
