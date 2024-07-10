@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://cdn.discordapp.com/attachments/897769319616884738/1260303128390139924/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f37316137396536356130363261313039313838343639366230343263633131332f323030663463353161363633333564332d30632f73353430783831302f3437336164643730653333613932316233.gif?ex=668ed441&is=668d82c1&hm=3afa48f6fa78b48e85ac40db186ebc9179671fabdf60865fbbeef90579f2d91e&" />
 </p>
-   <p align="center"><b>BYI:</b> i'm critical of my interests, i'm very shy but i try to respond to the best of my ability, <br>I don't take insults lightly; even playful ones, i use the block and hide buttons VERY freely.
+   <p align="center"><b>BYI:</b> i'm critical of my interests, i'm not very talkative but i try to respond to the best of my ability, <br>I don't take insults lightly; even playful ones, i use the block and hide buttons VERY freely.
 </p>
    <p align="center"><b>DNI:</b> general dni criteria, pro-shippers, just dni if you plan on being a dick for no reason.
 </p>
