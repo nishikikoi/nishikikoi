@@ -8,7 +8,7 @@
 <p align="center">
   <b>- - - - - ♡ - - - - -</b>
 </p>
-     <p align="center"><b>INTERESTS:</b> castlevania (games), <i>ffxiv</i>, shin megami tensei, persona 2-5, identity v, mother series, <br>pokémon, aitsf, hsr, hypmic,  charisma house, tokusatsu ( primarily kamen rider and ultraman ) <br>+ others not on this list
+     <p align="center"><b>INTERESTS:</b> castlevania (games), <i>ffxiv</i>, shin megami tensei, persona 2-5, identity v, mother series, <br>pokémon, aitsf, <i>hsr</i>, hypmic,  charisma house, tokusatsu ( primarily kamen rider and ultraman ) <br>+ others not on this list
 </p>
 <p align="center">
   <b>- - - - - ♡ - - - - -</b>
