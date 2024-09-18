@@ -1,5 +1,3 @@
-<p align="center"> 
-  Hi. I'm the Y0 Kiryu / Nishiki that sits near spawn all the time<i>!</i>
   <p align="center"> 
   <b>- - - - - ♡ - - - - -</b>
 </p>
