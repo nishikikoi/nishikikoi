@@ -7,7 +7,7 @@
 <p align="center">
   <b>- - - - - ♡ - - - - -</b>
 </p>
-     <p align="center"><b>INTERESTS:</b> castlevania (games), <i>ffxiv</i>, shin megami tensei, persona 2-5, identity v (gameplay/characters, not fandom), <br>mother series, pokémon, <i>ryu ga gotoku</i>, aitsf, hypmic,  charisma house, tokusatsu ( primarily kamen rider ) <br>+ others not on this list
+     <p align="center"><b>INTERESTS:</b> castlevania (games), <i>ffxiv</i>, shin megami tensei, persona 2-5, identity v (gameplay/characters, not fandom), <br>mother series, pokémon, <i><b>ryu ga gotoku</b></i>, aitsf, hypmic,  charisma house, tokusatsu ( primarily kamen rider ) <br>+ others not on this list
 </p>
 <p align="center">
   <b>- - - - - ♡ - - - - -</b>
