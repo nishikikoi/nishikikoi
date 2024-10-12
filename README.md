@@ -3,7 +3,7 @@
 </p>
    <p align="center"><b>BYI:</b> i'm critical of my interests, i'm not very talkative but i try to respond to the best of my ability, <br>i use the block and hide buttons VERY freely.
 </p>
-   <p align="center"><b>DNI:</b> idrc who interacts. just don't be a dick and we're cool
+   <p align="center"><b>DNI:</b> idrc who interacts. just don't be a dick and we're cool<br><br> if you want my socials you must answer my riddles three
 <p align="center">
   <b>- - - - - ♡ - - - - -</b>
 </p>
