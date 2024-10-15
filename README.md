@@ -3,7 +3,7 @@
 </p>
    <p align="center"><b>BYI:</b> i'm critical of my interests, i'm not very talkative but i try to respond to the best of my ability, <br>i use the block and hide buttons VERY freely.
 </p>
-   <p align="center"><b>DNI:</b> idrc who interacts. just don't be a dick and we're cool<br><br> if you want my socials you must answer my riddles three<br><sup>( talk to me more than once )</sup></sup>
+   <p align="center"><b>DNI:</b> proshippers and school shooter skins, <br>other than that idrc who interacts. just don't be a dick and we're cool<br><br> if you want my socials you must answer my riddles three<br><sup>( talk to me more than once )</sup></sup>
 <p align="center">
   <img src="https://64.media.tumblr.com/942c13a721302cff61906d3eaebf2c23/ffef7e8029b7971b-10/s250x400/5a665f4398974c7e1d7eb0204ba76e867ae31a81.gif" class="inline"/></a><br>
 </p>
