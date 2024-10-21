@@ -7,7 +7,7 @@
 <p align="center">
       - - - - - - - - - -<br>
 </p>
-     <p align="center"><b>INTERESTS:</b> castlevania (games), <i>ffxiv</i>, shin megami tensei, persona 2-5, <br>mother series, pokémon, <i><b>ryu ga gotoku</b></i>, aitsf, <i><b>kamen rider </b>(currently watching gavv and w!)</i><br>+ others not on this list
+     <p align="center"><b>INTERESTS:</b> castlevania (games), <i>ffxiv</i>, shin megami tensei, persona 2-5, <br>mother series, pokémon, <i><b>ryu ga gotoku</b></i>, aitsf, <i><b>kamen rider </b>(currently watching gavv and ooo!)</i><br>+ others not on this list
 </p>
 <p align="center">
       - - - - - - - - - -<br>
