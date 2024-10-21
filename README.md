@@ -12,5 +12,5 @@
 <p align="center">
       - - - - - - - - - -<br>
 </p>
-     <p align="center"><b>PONYTOWN NOTES.</b> <br>· feel free to refer to me with the name/pronouns of the pony i'm using, idrc <br>· i'm more often than not semi-afk so please whisper if you need anything! <br>· sitting together/cuddling doesn't always mean shipping. let a man sit with his bros in peace <br>· you can use my skins for inspo! just ask first! (and show me when you're done) ♥
+     <p align="center"><b>PONYTOWN NOTES.</b> <br>· feel free to refer to me with the name/pronouns of the pony i'm using, idrc <br>· i'm more often than not semi-afk so please whisper if you need anything! <br>· sitting together/cuddling doesn't always mean shipping. let a man sit with his bros in peace <br>· you can use my skins for inspo! just ask first! (and show me when you're done)
 </p>
